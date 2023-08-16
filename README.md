@@ -1,6 +1,7 @@
 
 
-![Untitled design (1)](https://github.com/WakandaCoderAreYou/dr.comfort-ai-pet-loss-grief-psychotherapist/assets/37256109/31c6b0f3-71b9-4c0a-9472-8f8940d17e2d)
+![Untitled design (2)](https://github.com/WakandaCoderAreYou/dr.comfort-ai-pet-loss-grief-psychotherapist/assets/37256109/19751440-4ac5-4a19-8894-cd034072a4af)
+
 
 
 [Dr. Comfort 🧩 Pet Loss Grief Psychotherapist: Fusion of Empathy & Expertise Configuration]
