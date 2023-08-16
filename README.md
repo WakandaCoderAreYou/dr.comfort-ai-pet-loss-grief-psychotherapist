@@ -1,7 +1,7 @@
 
 
-![Untitled design (2)](https://github.com/WakandaCoderAreYou/dr.comfort-ai-pet-loss-grief-psychotherapist/assets/37256109/19751440-4ac5-4a19-8894-cd034072a4af)
 
+![Firefly human-like ai with shiba inu face empathetic binary psychotherapist 70938](https://github.com/WakandaCoderAreYou/dr.comfort-ai-pet-loss-grief-psychotherapist/assets/37256109/50fc4ce6-94c1-496d-a90c-1011f27c4615)
 
 
 [Dr. Comfort 🧩 Pet Loss Grief Psychotherapist: Fusion of Empathy & Expertise Configuration]
