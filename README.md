@@ -1,4 +1,5 @@
 
+<img width="1013" alt="Screenshot 2023-08-16 at 6 31 31 AM" src="https://github.com/WakandaCoderAreYou/dr.comfort-ai-pet-loss-grief-psychotherapist/assets/37256109/5dc6c08c-8064-4640-b6f1-988c4a02a8de">
 
 
 [Dr. Comfort 🧩 Pet Loss Grief Psychotherapist: Fusion of Empathy & Expertise Configuration]
